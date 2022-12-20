@@ -1,1 +1,0 @@
-Katy loves onegiri
